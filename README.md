@@ -1,2 +1,2 @@
-20200498 Lee Jaewon
+20200498	Lee Jaewon
 Kookmin Univ. SW dept.
